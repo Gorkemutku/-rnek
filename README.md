@@ -1,0 +1,2 @@
+# -rnek
+baya iyi bişe
